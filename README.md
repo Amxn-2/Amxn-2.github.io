@@ -18,7 +18,7 @@ Welcome to the RMM  at Thakur College of Engineering and Technology! We are a di
 4. **Tanmay** - Gold Business & Wealthy
    - Tanmay has a strong business acumen and is involved in the gold industry. His entrepreneurial mindset and success provide valuable insights and inspiration to the group.
 
-5. **Yaghesh** - Promoting Equality and Inclusion
+5. **Yagyesh** - Promoting Equality and Inclusion
    - Yaghesh is an advocate for equality and inclusion. He actively works towards creating a supportive and inclusive environment for everyone in the group.
 
 6. **Chinmay** - Strong Determination and Perseverance
@@ -27,7 +27,7 @@ Welcome to the RMM  at Thakur College of Engineering and Technology! We are a di
 7. **Dhiraj** - Academically Driven and Goal-oriented
    - Dhiraj is a driven and studious individual who sets high goals for himself. He is focused on his academics while also balancing other aspects of student life.
 
-8. **Lakshay** - Empathy and Kindness
+8. **Lakshya** - Empathy and Kindness
    - Lakshay is a compassionate individual who always extends a helping hand to others. His kind-hearted nature creates a positive and supportive atmosphere within the group.
 
 9. **Aryan** - Stock Market Enthusiast and Financial Expertise
