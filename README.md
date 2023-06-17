@@ -19,7 +19,7 @@ Welcome to the RMM  at Thakur College of Engineering and Technology! We are a di
    - Tanmay has a strong business acumen and is involved in the gold industry. His entrepreneurial mindset and success provide valuable insights and inspiration to the group.
 
 5. **Yagyesh** - Promoting Equality and Inclusion
-   - Yaghesh is an advocate for equality and inclusion. He actively works towards creating a supportive and inclusive environment for everyone in the group.
+   - Yagyesh is an advocate for equality and inclusion. He actively works towards creating a supportive and inclusive environment for everyone in the group.
 
 6. **Chinmay** - Strong Determination and Perseverance
    - Chinmay is known for his determination and perseverance. He tackles challenges head-on and consistently strives for personal and academic growth.
