@@ -15,9 +15,9 @@ Welcome to the RMM of Thakur College of Engineering and Technology! We are a div
 3. **Harsh** - Programming Expert
    - Harsh is a skilled programmer with a deep understanding of various programming languages. His expertise in coding greatly contributes to the group's technical proficiency.
 
-4. **Tanmay** - Gold Business & Wealthy
-   - Tanmay is involved in the gold business and has achieved significant wealth. His entrepreneurial spirit and financial knowledge bring a unique perspective to the group.
-
+4. **Tanmay** - Entrepreneur Extraordinaire & Car Enthusiast
+   - Tanmay is a shrewd entrepreneur involved in the gold business, and his exceptional skills have made him very successful. He brings a wealth of knowledge and expertise to the group. Additionally, Tanmay      is a passionate car enthusiast, with a deep love for automobiles. His knowledge and enthusiasm for cars add an exciting dimension to our discussions and activities.
+   
 5. **Yagyesh** - Advocate of Equality
    - Yagyesh actively advocates for equality and social justice within the group and the wider community. His efforts towards inclusivity contribute to a harmonious environment.
 
