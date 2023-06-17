@@ -28,7 +28,7 @@ Welcome to the RMM  at Thakur College of Engineering and Technology! We are a di
    - Dhiraj is a driven and studious individual who sets high goals for himself. He is focused on his academics while also balancing other aspects of student life.
 
 8. **Lakshya** - Empathy and Kindness
-   - Lakshay is a compassionate individual who always extends a helping hand to others. His kind-hearted nature creates a positive and supportive atmosphere within the group.
+   - Lakshya is a compassionate individual who always extends a helping hand to others. His kind-hearted nature creates a positive and supportive atmosphere within the group.
 
 9. **Aryan** - Stock Market Enthusiast and Financial Expertise
    - Aryan has a keen interest in the stock market and possesses valuable knowledge in financial matters. He shares his insights and experiences, benefiting the group.
