@@ -1,8 +1,8 @@
 
 
-# RMM Group - Thakur College of Engineering and Technology
+# RMM - Thakur College of Engineering and Technology
 
-Welcome to the RMM group at Thakur College of Engineering and Technology! We are a diverse group of individuals with unique talents and backgrounds. Allow us to introduce ourselves:
+Welcome to the RMM of Thakur College of Engineering and Technology! We are a diverse group of individuals with unique talents and backgrounds. Allow us to introduce ourselves:
 
 ## Members:
 
